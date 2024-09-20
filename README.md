@@ -1,1 +1,5 @@
-# Muuriloo
+- Meu nome é Murilo Jussiani Rias
+- 16 anos
+- estudante de pensamento computacional💻
+- 1° A📚
+- 🍋
